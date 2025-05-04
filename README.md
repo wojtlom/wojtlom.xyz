@@ -1,0 +1,1 @@
+Moja swietna strona, nie wiem po co jest ale jest xd. Możesz pobrac zmodyfikować i mieć taką samą :) Jeżeli masz jakieś uwagi lub pytania to napisz. Reszta strony znajduje się w osobnych repozytoriach
